@@ -8,4 +8,4 @@
 
 ![](https://i.pinimg.com/736x/73/58/b7/7358b7b19f659b6ed2922a9db5767925.jpg)
 
-![](https://xyz.crd.co/assets/images/gallery01/426c6340.gif?v=de6feabd)  ‎   ‎ ‎◞  **Crow**  Roman  Jack  Pretzel  Ivo  ‎ ‎ ‎ ꕤ
+![](https://xyz.crd.co/assets/images/gallery01/426c6340.gif?v=de6feabd)  ‎   ‎ ‎◞  **Crow**  Roman  Jack  Pretzel  Ivo  Jay  Teddy  Sammy  Silen ‎ ‎ ‎ ꕤ
