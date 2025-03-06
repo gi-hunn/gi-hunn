@@ -1,4 +1,4 @@
-![](https://xyz.crd.co/assets/images/gallery11/0dd86027.png?v=de6feabd) ***— Good rain knows when to fall.*** ![](https://xyz.crd.co/assets/images/gallery11/0dd86027.png?v=de6feabd) Feel free to copy my pony . Idgaf
+![](https://xyz.crd.co/assets/images/gallery11/0dd86027.png?v=de6feabd) ***— Good rain knows when to fall.*** ![](https://xyz.crd.co/assets/images/gallery11/0dd86027.png?v=de6feabd) Feel free to copy my pony! Idgaf
 
  ✦ ✧ **TAKT** OR **ZERO** ![](https://xyz.crd.co/assets/images/gallery03/ddbff012.gif?v=de6feabd) ‎ ‎ ‎ ˢʰᵉ / ₕᵢₘ ✧ ✦‎ ‎ ‎ ‎ LITERALLY [Salesman](https://villains.fandom.com/wiki/The_Recruiter_(Squid_Game)) IRL‎ ‎ ‎
 
