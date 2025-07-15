@@ -2,7 +2,7 @@
 
  ✦ ✧ **TAKT** OR **ASH**  ![](https://xyz.crd.co/assets/images/gallery06/384a5fae.gif?v=de6feabd) ‎ ‎ ‎ ˢʰᵉ / ₕᵢₘ ✧ ✦‎ ‎ ‎ ‎ LITERALLY [Salesman](https://villains.fandom.com/wiki/The_Recruiter_(Squid_Game)) IRL‎ ‎ ‎
 
-**Literally** [LEON's]((https://bulbapedia.bulbagarden.net/wiki/Leon)) **#1 wife husband gf bf**‎  ‎![](https://xyz.crd.co/assets/images/gallery01/f2da33f9.gif?v=de6feabd)   **DNI If u like him or will argue about it◞**  !*!*
+**Literally** [LEON's](https://bulbapedia.bulbagarden.net/wiki/Leon) **#1 wife husband gf bf**‎  ‎![](https://xyz.crd.co/assets/images/gallery01/f2da33f9.gif?v=de6feabd)   **DNI If u yumeship him or will argue about it◞**  !*!*
  
 **![](https://i.postimg.cc/FzGxrMjT/345.gif) [CARRD](https://ashleon.carrd.co/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://i.postimg.cc/FzGxrMjT/345.gif) [PRONOUNS](https://en.pronouns.page/@Takt)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://i.postimg.cc/FzGxrMjT/345.gif) [ATABOOK](https://takt.atabook.org/)**
 
