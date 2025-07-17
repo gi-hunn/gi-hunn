@@ -1,6 +1,6 @@
 ![](https://xyz.crd.co/assets/images/gallery03/ea7f93f6.gif?v=de6feabd) ***— Let's have a CHAMPION TIME.*** ![](https://xyz.crd.co/assets/images/gallery18/1bb27310.gif?v=de6feabd) Feel free to copy my pony! Idgaf
 
- ✦ ✧ **TAKT** OR **ASH**  ![](https://xyz.crd.co/assets/images/gallery06/384a5fae.gif?v=de6feabd) ‎ ‎ ‎ ˢʰᵉ / ₕᵢₘ ✧ ✦‎ ‎ ‎ ‎ LITERALLY [Salesman](https://villains.fandom.com/wiki/The_Recruiter_(Squid_Game)) IRL‎ ‎ ‎
+ ✦ ✧ **TAKT** OR **ASH**  ![](https://xyz.crd.co/assets/images/gallery06/384a5fae.gif?v=de6feabd) ‎ ‎ ‎ ˢʰᵉ / ₕᵢₘ ✧ ✦‎ ‎ ‎ ‎ LITERALLY [MARNIE](https://pokemon.fandom.com/wiki/Marnie_(Galar)) IRL‎ ‎ ‎
 
 **Literally** [LEON's](https://bulbapedia.bulbagarden.net/wiki/Leon) **#1 wife husband gf bf**‎  ‎![](https://xyz.crd.co/assets/images/gallery01/f2da33f9.gif?v=de6feabd)   **DNI If u yumeship him or will argue about it◞**  !*!*
  
